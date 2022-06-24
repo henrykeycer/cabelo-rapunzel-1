@@ -1,1 +1,1 @@
-segredo-chá-roxo-revelado.com.br
+www.segredo-chá-roxo-revelado.com.br
